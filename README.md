@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @luxaxMixa
 - 👀 I’m interested in football. 
-- 🌱 I’m currently learning France and spanisb
+- 🌱 I’m currently learning France and spanish
 - 💞️ I’m looking to collaborate on nothing
 - 📫 dont dare to look to me reaching things
 
